@@ -1,7 +1,7 @@
 -oi,eu sou aninha020615
 -♀️menina
 -amo tirar fotos
--meu sonhoé ser fotografa
+-meu sonho é ser fotografa
 -
 
 <!---
